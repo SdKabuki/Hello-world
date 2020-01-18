@@ -1,2 +1,3 @@
 # Hello-world
-I haven't inspiration right now soooo...
+Hi there, i'm a gunpla freak and i like playing videogames like CS:GO or Star Citizen.
+
